@@ -1,4 +1,4 @@
 -.... / -- . ... . ... / .- --. ..- .- -. - .- -. -.. --- - . / ... ..- . .-. - ..- -.. .-
 
 
-Clue: ObedecE la MORSa
+*pista: obedecE la MORSa
