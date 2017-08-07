@@ -1,4 +1,4 @@
 -.... / -- . ... . ... / .- --. ..- .- -. - .- -. -.. --- - . / ... ..- . .-. - ..- -.. .-
 
 
-Clue: Obedece la MORSa
+Clue: ObedecE la MORSa
